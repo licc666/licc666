@@ -1,4 +1,4 @@
-### 愿梦想不仅是梦和想 😋
+### 愿梦想不仅是梦和想 😉
 
 <!--
 **licc666/licc666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
